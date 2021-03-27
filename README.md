@@ -1,2 +1,0 @@
-# MotherBaseRebuilded
-MotherBaseRebuilded-BYBIGKIRILL
